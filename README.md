@@ -1,1 +1,0 @@
-# TechSoc-PS
